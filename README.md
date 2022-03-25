@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ArtemMakarov1
-- 👀 I’m interested in .suck big dicks
-- 🌱 I’m currently learning 3 hundred baks
-- 💞️ I’m looking to collaborate on gay porn
+- 👀 I’m interested 
+- 🌱 I’m currently learning 
+- 💞️ I’m looking to collaborate 
 - 📫 How to reach me ...
 
 <!---
